@@ -9,4 +9,6 @@ Meu nome é Gabriely
 ### Você pode entrar em contato comigo: 📫
 
 0000112550772xsp@al.educacao.sp.gov.br
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fhappy-jimin-bts-jimin-jimin-laugh-gif-14064105&psig=AOvVaw3y7Z26Cn-Ve3toq4comFZx&ust=1722940842467000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCLC1s_nU3YcDFQAAAAAdAAAAABAE]
+
+![](![image](https://github.com/user-attachments/assets/9cea528e-0fb4-4546-a43e-7a165f21695f)
+)
