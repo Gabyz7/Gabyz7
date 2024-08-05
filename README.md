@@ -10,5 +10,4 @@ Meu nome é Gabriely
 
 0000112550772xsp@al.educacao.sp.gov.br
 
-![](![image](https://github.com/user-attachments/assets/9cea528e-0fb4-4546-a43e-7a165f21695f)
-)
+![]()![image](https://github.com/user-attachments/assets/825490ea-32a3-4c45-84f4-4589ef975ea4)
